@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Preglas
+- 👀 I’m interested in Roblox, Games, Python and Linux
+- 🌱 I’m currently learning nothing :)
+- 💞️ I’m looking to collaborate on Nothing :)
+- 📫 How to reach me: By Discord Preglas#4822
